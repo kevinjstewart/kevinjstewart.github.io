@@ -1,7 +1,5 @@
 ### My favourite artists and albums
 
-I'll be honest the main reason I made this page is to get rid of the 404 when I changed hosting plans and to post some music that I like.
-
 [Your Blues - Destroyer](https://open.spotify.com/album/2UsZRzjcrSpd5NyBdLoC4Y)
 
 Absolute masterpiece. Such a unique sound with the midi sounds but at the same time so expressive and almost pious in a way. The bridge in *Don't Become the Thing You Hated* is just so good.

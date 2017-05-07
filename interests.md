@@ -1,6 +1,6 @@
 ### Things I like
 
-- Music 👌🏻
+- Music
 - Reading
 - Writing 
 - Learning

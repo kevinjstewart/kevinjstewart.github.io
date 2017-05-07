@@ -1,8 +1,8 @@
 # [My Github](https://github.com/kevinjstewart)
 
-# iOS Developer in Toronto
+# [My LinkedIn](https://www.linkedin.com/in/kevinjstew/)
 
-## Currently working at RBC on fun stuff
+### About me
 
 [Things I like](interests.md)
 
