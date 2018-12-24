@@ -1,3 +1,3 @@
-# [My Github](https://github.com/kevinjstewart)
+### I develop iOS Apps
 
-# [My LinkedIn](https://www.linkedin.com/in/kevinjstew/)
+Contact: kevin (at) kevinstew (dot) art
