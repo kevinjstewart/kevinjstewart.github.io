@@ -1,3 +1,3 @@
-### I develop iOS Apps
+# Hi, I'm Kevin and I develop iOS Apps
 
-Contact: kevin (at) kevinstew (dot) art
+For my resume or to contact me, email: **kevin (at) kevinstew (dot) art**
